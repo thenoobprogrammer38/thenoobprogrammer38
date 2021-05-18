@@ -18,5 +18,5 @@
 - 🖥 3D Modelling <br><br>
 
 #### Open for Collaboration
-📩 [Instagram](https://www.instagram.com/rogerstibenn/)
+📩 [Instagram](https://www.instagram.com/rogerstibenn/)<br>
 📩 [Twitter](https://twitter.com/rowger_stiben)
